@@ -1,0 +1,1 @@
+Motivational webpage for master student Wiktoria, who's coping with lots of difficulties and challenges daily
